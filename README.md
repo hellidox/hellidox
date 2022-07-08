@@ -1,3 +1,3 @@
-- Check out [Petey Productions ](https://www.youtube.com/channel/UCBrrp8QGYvBhz59MJVGJ5-Q)on yt
+- Check[ ](https://www.youtube.com/channel/UCBrrp8QGYvBhz59MJVGJ5-Q)out[ Petey Productions ](https://www.youtube.com/channel/UCBrrp8QGYvBhz59MJVGJ5-Q)on[ ](https://www.youtube.com/channel/UCBrrp8QGYvBhz59MJVGJ5-Q)yt
 - they/it
 - when the#1264
