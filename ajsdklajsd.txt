@@ -1,1 +1,1 @@
-This pr is a test. Devin, say hi in the comments!
+This pr is a test too. Devin, say hi in the comments!
